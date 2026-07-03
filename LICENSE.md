@@ -1,4 +1,4 @@
-# 
+# نهائي Advanced SystemCare سير العمل لـ Mac OS | خفيف Advanced SystemCare سير العمل لـ PC Windows. مع تسجيل الماكرو و نظام الإضافات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
